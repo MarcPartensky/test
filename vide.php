@@ -1,1 +1,1 @@
-vide
+vide comme ton cerveau
